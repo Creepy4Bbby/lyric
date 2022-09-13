@@ -34,8 +34,6 @@ Croyant la jouer fine, il ne voulait pas, ne cherchait même pas<br>
 Chaque jour un peu plus<br>
 J'avais pas l'impression d'être plus coté qu'une caisse à l'argus<br>
 Donc j'ai dû renoncer, trouver mes propres complices<br>
-Mes partenaires de glisse, désolé si je m'immiscegit pull<br>
-
 Mes partenaires de glisse, désolé si je m'immisce<br>
 
 <h1>Kool Shen :</h1>
