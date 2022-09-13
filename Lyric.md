@@ -33,4 +33,4 @@ Croyant la jouer fine, il ne voulait pas, ne cherchait même pas
 Chaque jour un peu plus
 J'avais pas l'impression d'être plus coté qu'une caisse à l'argus
 Donc j'ai dû renoncer, trouver mes propres complices
-Mes partenaires de glisse, désolé si je m'immisce
+Mes partenaires de glisse, désolé si je m'immiscegit pull
